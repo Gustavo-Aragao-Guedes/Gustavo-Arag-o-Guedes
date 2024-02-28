@@ -1,2 +1,2 @@
-# Gustavo-Arag-o-Guedes
+# Gustavo-Aragao-Guedes
 Meu repositório pessoal
